@@ -4,7 +4,7 @@
 
 [![GitHub Streak](https://streak-stats.demolab.com/?user=uhroyal&theme=dark)](https://git.io/streak-stats)
 
-![af3261c98d77e4712f24dab1994f1f08](https://github.com/user-attachments/assets/ccc16a33-5cd2-4f9a-ae3a-064ee8008e26)
+![1356e5ff229a2270742a7b83cac46e83](https://github.com/user-attachments/assets/a2e5f086-9464-4c3c-a232-f6dd5240dabb)
 
 ----
 
